@@ -1,4 +1,4 @@
-# 
+# ultimate dex sandwiched bot Addon | sandwich-attack-protection + auto-compounding offers the most advanced dex sandwiched bot, with sandwich-attack-protection and
 
 
 
